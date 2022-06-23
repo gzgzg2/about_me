@@ -11,8 +11,6 @@
 
 **Email.** parkuram12@gmail.com
 
-**Phone.** 010-3604-1458
-
 **Blog.** [https://gzgzg2.github.io/](https://gzgzg2.github.io/) 
 
 **GitHub.** [https://github.com/gzgzg2](https://github.com/gzgzg2)
